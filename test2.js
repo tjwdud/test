@@ -1,8 +1,0 @@
-regergregeg;
-ijoijgoij
-gjrtijortjio
-gpojirhjortj
-hkotpkhot
-gtopkhopr
-tokrphko
-hltporhkort
